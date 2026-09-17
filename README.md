@@ -210,4 +210,4 @@ jDictionary is provided as a complete free version with all features and updates
 Take the next step in language translation—**download jDictionary today and unlock a world of communication!**
 
 ---
-**Last updated:** 2026-09-16 23:22:59 UTC
+**Last updated:** 2026-09-17 02:19:20 UTC
